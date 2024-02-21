@@ -1,6 +1,6 @@
 ### From the Minister's Desk:
 
-This is a summary of Rev. Bacchas' Bible Study presentation on 20 February 2024:
+This is a **SUMMARY** of Rev. Bacchas' Bible Study presentation on 20 February 2024: **MIRACLES AT A MIDNIGHT PRAYER MEETING**
 
 Acts 16:16-40 includes several notable events that can be considered miraculous or significant demonstrations of divine power and intervention. Here's a list based on the passage:
 
