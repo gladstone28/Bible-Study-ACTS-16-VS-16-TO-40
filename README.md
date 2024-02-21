@@ -1,3 +1,7 @@
+### From the Minister's Desk:
+
+This is a summary of Rev. Bacchas' Bible Study presentation on 20 February 2024:
+
 Acts 16:16-40 includes several notable events that can be considered miraculous or significant demonstrations of divine power and intervention. Here's a list based on the passage:
 
 1. **Exorcism of a Slave Girl** (Acts 16:16-18): Paul commands a spirit of divination to come out of a slave girl, which it does immediately. This girl had been following Paul and Silas, proclaiming them as servants of the Most High God. The miracle here is the immediate and effective exorcism performed by Paul, demonstrating the power of Jesus' name over demonic forces.
@@ -7,3 +11,5 @@ Acts 16:16-40 includes several notable events that can be considered miraculous 
 3. **Conversion of the Philippian Jailer** (Acts 16:29-34): Following the earthquake and the miraculous opening of the prison doors, the Philippian jailer asks Paul and Silas what he must do to be saved. They tell him to believe in the Lord Jesus, and he and his household are baptized that night. The miracle here is more of a spiritual nature, highlighting the rapid and profound change in the jailer and his family, leading to their immediate conversion and baptism.
 
 These events are central to the narrative in Acts 16:16-44, showcasing the power of God working through Paul and Silas, leading to miraculous occurrences and the spread of the Christian faith.
+
+**KING'S GATE UNITED CHURCH - 49 HOPE ROAD, KINGSTON 10 - VISIT US ON SUNDAYS AT 9:00 am**
